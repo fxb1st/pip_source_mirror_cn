@@ -1,1 +1,0 @@
-[点击访问](https://fxb1st.github.io/pip_source_mirror_cn/)
